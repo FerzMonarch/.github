@@ -13,6 +13,6 @@
 Контакты для связи:
 - [**Иван Лавренов**](https://vk.com/ftyhd5ibgftui)
 - [**Егор Валуев**](https://vk.com/theegor999cdm)
-- [**Александр Увороторов**](https://vk.com/lord_destro_orion)
+- [**Александр Уворотов**](https://vk.com/lord_destro_orion)
 
 Давайте создавать игры вместе! ✨
