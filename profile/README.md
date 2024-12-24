@@ -11,7 +11,8 @@
 Если вы увлечены созданием игр так же - вы наш человек! Чувствуйте себя как дома и не стесняйтесь вносить свой вклад.
 
 Контакты для связи:
-- https://vk.com/c.messiah
+- https://vk.com/ftyhd5ibgftui
+- https://vk.com/theegor999cdm
 - https://vk.com/lord_destro_orion
 
 Давайте создавать игры вместе! ✨
