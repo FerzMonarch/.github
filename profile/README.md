@@ -11,8 +11,8 @@
 Если вы увлечены созданием игр так же - вы наш человек! Чувствуйте себя как дома и не стесняйтесь вносить свой вклад.
 
 Контакты для связи:
-- https://vk.com/ftyhd5ibgftui
-- https://vk.com/theegor999cdm
-- https://vk.com/lord_destro_orion
+- [Иван Лавренов](https://vk.com/ftyhd5ibgftui)
+- [Егор Валуев](https://vk.com/theegor999cdm)
+- [Александр Увороторов](https://vk.com/lord_destro_orion)
 
 Давайте создавать игры вместе! ✨
