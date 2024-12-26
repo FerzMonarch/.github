@@ -16,3 +16,6 @@
 - [**Александр Уворотов**](https://vk.com/lord_destro_orion)
 
 Давайте создавать игры вместе! ✨
+
+![image](https://github.com/user-attachments/assets/7e2f2beb-cec6-4054-8c73-b1948f4d49d3)
+
